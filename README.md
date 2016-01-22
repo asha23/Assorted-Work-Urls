@@ -11,3 +11,5 @@
 - http://www.funnygirlthemusical.co.uk 
 - http://www.shaftesburytheatre.com/ 
 - http://digital.akauk.com/sargent-test/
+- http://www.tantrum.tv
+- http://www.allen-international.com
