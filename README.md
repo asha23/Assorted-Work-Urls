@@ -1,6 +1,6 @@
 
 - http://sinatraonstage.com/ 
-- http://sunnyafternoon.com 
+- http://sunnyafternoonthemusical.com/
 - http://arcelormittalorbit.com 
 - http://www.thecreativepartnership.co.uk/ 
 - http://catalystglobalmedia.com 
