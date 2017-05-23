@@ -8,6 +8,8 @@
 - http://hedrin.co.uk/
 - http://dr-organic-diagnostic-tool.co.uk/
 - https://www.1msg.co.uk/
+- http://thisispegasus.co.uk
+- http://allabouthae.co.uk
 
 # AKA
 
@@ -26,7 +28,7 @@
 
 # Other
 
-- http://www.tantrum.tv
+- http://prtbl.net/dev/tantrum
 - http://www.blondetoblackpictures.com
 
 
